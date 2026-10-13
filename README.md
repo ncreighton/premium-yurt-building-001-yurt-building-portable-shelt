@@ -1,0 +1,2 @@
+# premium-yurt-building-001-yurt-building-portable-shelt
+Tired of piecing together scattered yurt plans and hoping your portable shelter won't collapse in the first storm? This hub gives you a single, proven system to design, build, and customize a sturdy, weather-ready shelter that's truly portable.  Instead of chasing dozens of incomplete tutorials, you get a unified blueprint that blends traditional y
